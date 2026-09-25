@@ -1,2 +1,2 @@
-Juan Manuel Daza 
-Este proyecto fue iniciado por ingrid vanessa mosquera y juan manuel daza esta colaborando.
+Mi nombre es Juan Manuel Daza 
+Mi nombre es ingrid vanessa mosquera 
